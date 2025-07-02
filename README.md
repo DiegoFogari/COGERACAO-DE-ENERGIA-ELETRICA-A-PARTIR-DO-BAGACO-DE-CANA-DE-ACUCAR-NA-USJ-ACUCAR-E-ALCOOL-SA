@@ -8,8 +8,9 @@
 
 **Qualquer uso indevido deste material será passível de medidas legais cabíveis.**
 
-	
-**USJ - São João Araras**
+
+**Para mais informações ou solicitações de uso, entre em contato com Diego Henrique Viega Fogari diihfogari@gmail.com ou diretamente com a USJ - São João Araras.**
+
 **Grupo: USJ**
 **Telefone: (19) 3543-7800 / Fax: (19) 3543-7878**
 
@@ -19,7 +20,7 @@
 
 **e-mail: comercial@usj.com.br**
 
-Para mais informações ou solicitações de uso, entre em contato com Diego Henrique Viega Fogari diihfogari@gmail.com ou diretamente com a USJ - São João Araras.
+
 
 ⚠️ Restrições de Uso Este material é fornecido "no estado em que se encontra" e destina-se unicamente a . Qualquer uso comercial, seja direto ou indireto, é estritamente proibido sem autorização expressa do autor. Para outras finalidades ou solicitações de uso que não se enquadrem nas condições de uso acadêmico e não comercial, por favor, entre em contato com o autor.
 
