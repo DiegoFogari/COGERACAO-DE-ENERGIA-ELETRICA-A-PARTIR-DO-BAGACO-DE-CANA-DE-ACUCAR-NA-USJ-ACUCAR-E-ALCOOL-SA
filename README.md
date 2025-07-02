@@ -1,3 +1,15 @@
+# COGERACAO-NO-SETOR-SUCROALCOOLEIRO-A-PARTIR-DO-BAGACO-DE-CANA-DE-ACUCA
+
+⚠️⚠️## Aviso Legal e de Confidencialidade⚠️⚠️
+
+**Este repositório contém informações e imagens de propriedade da USJ - São João Araras, Grupo: USJ. O acesso e a utilização deste conteúdo são restritos e destinam-se exclusivamente à avaliação acadêmica do Trabalho de Conclusão de Curso (TCC) de Diego Henrique Viega Fogari.**
+
+**É estritamente proibida a cópia, reprodução, distribuição, divulgação, modificação ou utilização, total ou parcial, das informações e imagens aqui contidas para qualquer outro fim que não seja o propósito específico deste TCC, sem a prévia e expressa autorização por escrito da USJ - São João Araras, Grupo: USJ.**
+
+**Qualquer uso indevido deste material será passível de medidas legais cabíveis.**
+
+Para mais informações ou solicitações de uso, entre em contato com [Seu Nome] ([Seu Email]) ou diretamente com a [Nome da Empresa].
+
 ⚠️ Restrições de Uso Este material é fornecido "no estado em que se encontra" e destina-se unicamente a . Qualquer uso comercial, seja direto ou indireto, é estritamente proibido sem autorização expressa do autor. Para outras finalidades ou solicitações de uso que não se enquadrem nas condições de uso acadêmico e não comercial, por favor, entre em contato com o autor.
 
 Diego Henrique Viega Fogari diihfogari@gmail.com
