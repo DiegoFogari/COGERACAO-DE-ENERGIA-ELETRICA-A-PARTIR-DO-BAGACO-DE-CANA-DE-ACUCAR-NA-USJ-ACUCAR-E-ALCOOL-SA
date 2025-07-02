@@ -1,6 +1,6 @@
 # COGERAÇÃO-NO-SETOR-SUCROALCOOLEIRO-À-PARTIR-DO-BAGAÇO-DE-CANA-DE-AÇÚCAR
 
-⚠️⚠️Aviso Legal e de Confidencialidade⚠️⚠️
+⚠️⚠️**Aviso Legal e de Confidencialidade**⚠️⚠️
 
 **Este repositório contém informações e imagens de propriedade da USJ - São João Araras, Grupo: USJ. O acesso e a utilização deste conteúdo são restritos e destinam-se exclusivamente à avaliação acadêmica do Trabalho de Conclusão de Curso (TCC) de Diego Henrique Viega Fogari.**
 
